@@ -15,8 +15,6 @@ Fictkins: Poland, Jinx / Powder, Emil Mesmer, and Razor. IDM doubles interacting
 
 My FAVORITE characters are Lithuania, Ukraine, Wanda Maximoff, Loki, Dr. Strange, Mantis, Ganji Gupta, Annie Lester  ₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾  AND.. Barbatos and Satan - FROM OBEY ME!!!!!!
 <img width="16384" height="1629" alt="41 sin título_20261017212157" src="https://github.com/user-attachments/assets/fb66ec57-d8c4-49f6-bc2c-e387c818b50a" />
-
 <img width="600" height="443" alt="IMG_6203" src="https://github.com/user-attachments/assets/0cabb849-6809-4421-a248-43e929d74472" />
 <img width="16384" height="1629" alt="41 sin título_20261017212110" src="https://github.com/user-attachments/assets/7d582e31-0467-491f-84a6-07e8b791c65e" />
-
 <img width="16384" height="1629" alt="41 sin título_20261017211604" src="https://github.com/user-attachments/assets/ae5e595f-585e-4f6e-a5e1-1f897d0516a3" />
