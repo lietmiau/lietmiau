@@ -1,16 +1,22 @@
-## Hi there 👋
+<img width="16384" height="1629" alt="41 sin título_20261017211604" src="https://github.com/user-attachments/assets/ed09f395-a052-45f2-b9bc-6081e8d2755f" />
+<img width="964" height="516" alt="IMG_6190" src="https://github.com/user-attachments/assets/f2c75e05-27d3-4b8c-b480-87a72cf56571" />
+<img width="16384" height="1629" alt="41 sin título_20261017212110" src="https://github.com/user-attachments/assets/124a8b6a-e486-4dcb-a9de-774ff5d03b5c" />
+你好!你可以叫我Dani。我的中文不是很好，所以我会使用翻译器。如果你愿意和我聊天，我更喜欢你私信我。否则我就不知道你是不是在和我说话了。('' •᷄ ⩊ •᷅ ) ♡
+<img width="16384" height="1629" alt="41 sin título_20261017212157" src="https://github.com/user-attachments/assets/540002d2-0841-49d7-a711-3c9f0cb6d887" />
+HALO!!!! My name is Hao, but I also go by Feliks, Danielle and Emil! I’m 17 years old, my birthday is on the January 24th (,,>ヮ<,,)
 
-<!--
-**lietmiau/lietmiau** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+   
+My pronouns are He / Him
+<img width="16384" height="1629" alt="41 sin título_20261017220845" src="https://github.com/user-attachments/assets/16028211-8d63-4c90-a22a-90a92719db1f" />
+I’m usually hanging out in the Safe Server Hetalia area or in the Chinese server IdentityV area !! ♡ ♡ 
+(sometimes in the +18) ≽(•⩊ •マ≼ always feel free to sit with me, we’ll keep each other company!
+<img width="16384" height="1629" alt="41 sin título_20261017212157" src="https://github.com/user-attachments/assets/421ecf73-8ecb-44c3-b152-1b8ddd61ee47" />
+Fictkins: Poland, Jinx / Powder, Emil Mesmer, and Razor. IDM doubles interacting
 
-Here are some ideas to get you started:
+My FAVORITE characters are Lithuania, Ukraine, Wanda Maximoff, Loki, Dr. Strange, Mantis, Ganji Gupta, Annie Lester  ₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾  AND.. Barbatos and Satan - FROM OBEY ME!!!!!!
+<img width="16384" height="1629" alt="41 sin título_20261017212157" src="https://github.com/user-attachments/assets/fb66ec57-d8c4-49f6-bc2c-e387c818b50a" />
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<img width="600" height="443" alt="IMG_6203" src="https://github.com/user-attachments/assets/0cabb849-6809-4421-a248-43e929d74472" />
+<img width="16384" height="1629" alt="41 sin título_20261017212110" src="https://github.com/user-attachments/assets/7d582e31-0467-491f-84a6-07e8b791c65e" />
+
+<img width="16384" height="1629" alt="41 sin título_20261017211604" src="https://github.com/user-attachments/assets/ae5e595f-585e-4f6e-a5e1-1f897d0516a3" />
