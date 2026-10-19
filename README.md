@@ -13,7 +13,7 @@ I’m usually hanging out in the Safe Server Hetalia area or in the Chinese serv
 <img width="16384" height="1629" alt="41 sin título_20261017212157" src="https://github.com/user-attachments/assets/421ecf73-8ecb-44c3-b152-1b8ddd61ee47" />
 Fictkins: Poland, Jinx / Powder, Emil Mesmer, and Razor. IDM doubles interacting
 
-My FAVORITE characters are Lithuania, Ukraine, Wanda Maximoff, Loki, Dr. Strange, Mantis, Ganji Gupta, Annie Lester  ₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾  AND.. Barbatos and Satan - FROM OBEY ME!!!!!!
+My FAVORITE characters are Lithuania, Ukraine, Wanda Maximoff, Loki, Dr. Strange, Mantis, Ganji Gupta, Annie Lester  ₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾  AND.. Barbatos and Satan - FROM OBEY ME!!!!!! and Crowe from TKATB too… so cute.. they’re all so cute… I think I’m going to explode.
 <img width="16384" height="1629" alt="41 sin título_20261017212110" src="https://github.com/user-attachments/assets/82457039-0c2a-40e1-93dd-2ec2a5c7b162" />
 <img width="736" height="460" alt="IMG_5726" src="https://github.com/user-attachments/assets/5b9e3c2f-2abc-4a78-bb12-5eb2a97918c8" />
 <img width="16384" height="1629" alt="41 sin título_20261017211604" src="https://github.com/user-attachments/assets/ae5e595f-585e-4f6e-a5e1-1f897d0516a3" />
