@@ -11,7 +11,7 @@ My pronouns are He / Him
 I’m usually hanging out in the Safe Server Hetalia area or in the Chinese server IdentityV area !! ♡ ♡ 
 (sometimes in the +18) ≽(•⩊ •マ≼ always feel free to sit with me, we’ll keep each other company!
 <img width="16384" height="1629" alt="41 sin título_20261017212157" src="https://github.com/user-attachments/assets/421ecf73-8ecb-44c3-b152-1b8ddd61ee47" />
-Fictkins: Poland, Finland, Jinx / Powder, Emil Mesmer, and Razor. IDM doubles interacting
+Fictkins: Poland, Jinx / Powder, Emil Mesmer, and Razor. IDM doubles interacting
 
 My FAVORITE characters are Lithuania, Ukraine, Belarus, Wanda Maximoff, Loki, Dr. Strange, Mantis, Ant-Man, Ganji Gupta, Annie Lester  ₍₍⚞(˶ˆᗜˆ˵)⚟⁾⁾  AND.. Barbatos and Satan - FROM OBEY ME!!!!!! and Crowe from TKATB too… so cute.. they’re all so cute… I think I’m going to explode.
 <img width="16384" height="1629" alt="41 sin título_20261017212110" src="https://github.com/user-attachments/assets/82457039-0c2a-40e1-93dd-2ec2a5c7b162" />
