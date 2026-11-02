@@ -18,4 +18,3 @@ $\color{FFECE0}\normalsize{\texttt{we’ll keep each other company!}}$ <br>
   </tr>
   </table>
 <img src= https://github.com/lietmiau/lietmiau/blob/470f790e5508d2776db5395b26aab13b630405ca/53%20sin%20ti%CC%81tulo_20261101165752.png/>
-<p align="center"> ${{\color{#FFEDDC}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}}}$
