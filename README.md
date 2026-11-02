@@ -9,6 +9,13 @@
   </tr>
   </table>
 <img src= https://github.com/lietmiau/lietmiau/blob/12f33d46c2acc957feb14b791fcfd0fa109f74c3/41%20sin%20ti%CC%81tulo_20261101212053.png/> 
+ <th>
+      $\color{FFD6B8}\normalsize{\texttt{I’m usually hanging out in the Safe Server Hetalia}}$ <br>
+    $\color{FFE7CF}\normalsize{\texttt{area or in the Chinese server IdentityV area ! !}}$<br>
+$\color{FFD6B8}\normalsize{\texttt{always feel free to sit with me,}}$ <br>
+$\color{FFECE0}\normalsize{\texttt{we’ll keep each other company!}}$ <br>
+  </th>
+  </tr>
   </table>
 <img src= https://github.com/lietmiau/lietmiau/blob/470f790e5508d2776db5395b26aab13b630405ca/53%20sin%20ti%CC%81tulo_20261101165752.png/>
 <p align="center"> ${{\color{#FFEDDC}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}}}$
