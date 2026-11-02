@@ -1,7 +1,5 @@
 <p align="center"> ${{\color{#FFEDDC}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}}}$
-
-
-  
+ 
 <img src= https://github.com/lietmiau/lietmiau/blob/23dc7e803f17d49b46866113a1fd38aeb792d2d1/52%20sin%20ti%CC%81tulo_20261101152608.png/>
 <th>
       $\color{FFD6B8}\normalsize{\texttt{你好!你可以叫我Dani！我的中文不是很好，所以我会使}}$ <br>
