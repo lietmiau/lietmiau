@@ -1,3 +1,5 @@
+<p align="center"> ${{\color{#FFEDDC}{\textsf{⏔⏔⏔ ꒰ ᧔ෆ᧓ ꒱ ⏔⏔⏔}}}}$
+  
 <img src= https://github.com/lietmiau/lietmiau/blob/23dc7e803f17d49b46866113a1fd38aeb792d2d1/52%20sin%20ti%CC%81tulo_20261101152608.png/>
 
 
